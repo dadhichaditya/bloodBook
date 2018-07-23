@@ -1,2 +1,2 @@
 # bloodBook
-ikhnuoljoi
+not ready yet xD
